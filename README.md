@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Farah010210
-- 👀 I’m interested in technologia,design and marketing
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on design more specifically 
+- 👀 I’m interested in technologia and architectural design
+- 🌱 I’m currently learning in high school 
 - 📫 How to reach me ...
 - 😄 Pronouns: As u like. I'm a girl.
 - ⚡ Fun fact: ...
